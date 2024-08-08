@@ -3,4 +3,4 @@
 
 🌀 Open-source project by absolut and GamesPlays25.
 
-Have Fun! ^_^ ¯\_(ツ)_/¯
+Have Fun! ^_^ 
